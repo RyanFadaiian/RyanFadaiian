@@ -1,6 +1,6 @@
 ## My github is a work in progress
 
-
+![Image](https://github.com/user-attachments/assets/adcef430-732e-4a11-8b0f-a0ef8a7d9f42)
 
 <!--
 **RyanFadaiian/RyanFadaiian** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
