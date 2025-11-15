@@ -1,4 +1,4 @@
-## My github is a work in progress
+## My github is a work in progress - Have not updated/uploaded my projects on here yet
 
 ![Image](https://github.com/user-attachments/assets/adcef430-732e-4a11-8b0f-a0ef8a7d9f42)
 
